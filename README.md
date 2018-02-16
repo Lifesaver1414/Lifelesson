@@ -16,3 +16,11 @@
 
 ## ........This Guy
 <body> So I don't really know who this guy is. We met once and he wanted to kill me and my peeps. So I shut him down. We could've just ran. Its not like he could've caught us. If anything it would be more humiliating......and fun.......and beneficial towards him. Everybody would've won.
+
+<a href="https://lifesaver1414.github.io/Lifelesson/"> Lifelesson </a>
+
+<a href="https://lifesaver1414.github.io/Past-Residences/"> Past Residences </a>
+
+<a href="https://lifesaver1414.github.io/Pretty-Majestic/"> Pretty Majestic </a>
+
+<a href="https://lifesaver1414.github.io/Sources/"> Sources </a>
