@@ -4,7 +4,7 @@
 
 <img src="http://pre12.deviantart.net/1984/th/pre/f/2016/278/3/c/gandalf_vs_balrog_by_danpilla-dajzr14.jpg" alt="text">
 
-### Dont mess with giant man-ox-lizard-whip monster
+### Dont mess with giant-man-ox-lizard-whip monster
 
 <body> So they called this guy Balrog. I'm with my mates when this guy jumps us. Me, being the one always starting fights, I told my hommies to go on. I can take him. After some argueing they went. I couldnt take him. I froze to death. So did he. The guy's made of fire yet lives in a mountain surrounded by snow. I wasn't the only one who didn't think things through.
 
